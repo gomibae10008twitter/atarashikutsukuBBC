@@ -1,7 +1,7 @@
 <CENTER>
 <BR>
 <BR>
-<BR><H4></a href="https://twitter.com/atarashikutsuku">風氏</a>とのBBCの件での簡単なまとめ</H4><BR><BR>
+<BR><H4><a href="https://twitter.com/atarashikutsuku">風氏</a>とのBBCの件での簡単なまとめ</H4><BR><BR>
 <BR><H5>事の発端はこんな感じでっす
 <BR>日本では規制されてツイッターですらも日本のアカウントでは報道されなかった伊藤詩織氏の痴漢の話について
 <BR>風氏は日本人の性犯罪の意識が低すぎる。みたいなことほざいたことが事の発端になりまっす<BR>
